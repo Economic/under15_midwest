@@ -1,0 +1,1 @@
+shares and counts of workers earning under $15 per hour, for Midwest project led by Nina Mast
